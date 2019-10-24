@@ -1,3 +1,3 @@
 # CodeHS
 
-put the in notepad then zip and put here 
+do in CodeHS then put in notepad and zip  it and put here 
